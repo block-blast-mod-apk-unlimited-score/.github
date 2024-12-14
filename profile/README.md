@@ -6,7 +6,7 @@ Block Blast Mod APK is an engaging puzzle game that will challenge your mind whi
 
 Whether you’re looking for a casual game to unwind or a challenging puzzle to test your skills, Block Blast Mod APK is a perfect choice for you. The simple yet addictive gameplay makes it easy for players of all ages to pick up and play. The modded version enhances the experience, making it even more fun by offering more features and rewards.
 
-## Download Now:💕 https://heyapks.com/ 
+## Download Now:💕 https://heyapks.com/block-blast.html 
 
 ## Features of Block Blast Mod APK
 
